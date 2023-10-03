@@ -1,6 +1,6 @@
 - 👋 Hi, my name is Varlam.
 - 👀 I’m interested in web3.
-- 🌱 I’m currently learning all this thing.
+- 🌱 I’m currently learning crypto, web3, gaming.
 
 
 <!---
